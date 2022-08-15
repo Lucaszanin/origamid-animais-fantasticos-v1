@@ -28,7 +28,7 @@ Abaixo gir do projeto funcionando.
 
 ## Status
 
-Projeto Nina Ateliê 🎯 concluido 👌
+Projeto Animais Fantásticos em andamento😬🤯
 
 ## Objetivo
 
